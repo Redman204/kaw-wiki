@@ -79,7 +79,7 @@ We welcome contributions! You can help improve this wiki by:
 
 ## Contact
 
-- **In-game:** `SHY-PeaceKeeper-SHY`  
+- **In-game:** `RedMan204`  
 - **GitHub:** Use the Issues or Pull Requests to contact or suggest improvements.
 
 ---
