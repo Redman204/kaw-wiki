@@ -1,5 +1,5 @@
 ```
-🕊️👊🔥KNOCK OUT🔥👊🕊️ - Perm members
+🕊️👊🔥KNOCK OUT🔥👊🕊️ - New 2026 Perm members
 ```
 ```
 🎱👊🔥KNOCK OUT🔥👊🎱 - Old Perm Members 
