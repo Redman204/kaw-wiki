@@ -35,6 +35,11 @@
 👊🔥KNOCK OUT🔥👊
 💪T1 - T5 Eb Rotations💪
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
+
+👊🔥KNOCK OUT🔥👊
+🎱B2B Low Tier EBs 🎱
+👊Beginner-friendly👊
+👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂
 ```
 ```
 Current EB Rotation♻️  
