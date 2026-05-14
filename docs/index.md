@@ -12,7 +12,6 @@ You can also find me in KaW: RedMan204
 
 #### [Quick Start Guide](guides/quick-start.md)
 #### [Epic Battles](epic-battles.md)
-#### [Build calculator] (https://build-calc.html )
 
 ---
 ## Credits
