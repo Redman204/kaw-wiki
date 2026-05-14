@@ -10,10 +10,12 @@
 
 🔥WARLORD: Crazy-Cooter🔥
 🔥Warchiefs: RedMan204❣️ 
+🔥 Admins:
  
 💢👊🏼ʂųƈƙɛཞ ℘ųŋƈɧ ʄąɱıƖყ👊🏼💢
 ⭐ʂųƈƙɛཞ ℘ųŋƈɧ 20bcs
 ⭐P̷u̷n̷c̷h̷ O̷u̷t̷ 
+
 ⭐ƙŋơƈƙ ơųɬ 
 
 
@@ -50,9 +52,6 @@ COTD-angels of light/seal of divinity/holy wrath
 NML-runes of detection
 NG-elven shield
 
-➰➰➰➰  |🇬🇧🇺🇸
-                  ╱█◣ BR 13%
-            ╱████◣  1.5Bcs ◥█████████████◣
 
 
 ## Looking for ads/titles?
