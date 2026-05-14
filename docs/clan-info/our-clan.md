@@ -19,7 +19,7 @@
 
 ⭐ƙŋơƈƙ ơųɬ - Beginner Clan| Small ebs
 ```
-
+```
   💫RULES💫
 🥊Read Clan Announcement💪
 🥊Neutral clan!🏳
@@ -28,7 +28,7 @@
 🥊Premium items is Sealers Call🤙🏽
 🥊EB requests-ask in Clan chat👊🏽
 🥊CLAN AD👇send 4+a day👀
-
+```
 ```
 👊🔥KNOCK OUT🔥👊
 💪T1 - T5 Eb Rotations💪
