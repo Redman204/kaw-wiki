@@ -29,12 +29,12 @@
 🥊EB requests-ask in Clan chat👊🏽
 🥊CLAN AD👇send 4+a day👀
 
-
+```
 👊🔥KNOCK OUT🔥👊
 💪T1 - T5 Eb Rotations💪
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
-
-
+```
+```
 Current EB Rotation♻️  
 💢Warbeasts 
 💢Depraved
@@ -43,7 +43,8 @@ Current EB Rotation♻️
 💢Battle Royale 
 💢Destroyer 
 💢No Man's Land
-
+```
+```
 🛡EB ITEMS🛡
 DPR-sleeping potion
 H-seal of deflection
@@ -52,7 +53,7 @@ DST-exilir of rage/elven shield
 COTD-angels of light/seal of divinity/holy wrath
 NML-runes of detection
 NG-elven shield
-
+```
 
 
 ## Looking for ads/titles?
