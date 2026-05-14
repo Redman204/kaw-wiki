@@ -1,4 +1,21 @@
 ```
+👊🔥KNOCK OUT🔥👊
+🎱B2B Low Tier EBs 🎱
+👊Beginner-friendly👊
+👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
+
+```
+👊🔥KNOCK OUT🔥👊
+💪T1 - T5 Eb Rotations💪
+👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
+```
+➰➰➰➰  |🇬🇧🇺🇸
+                  ╱█◣ BR 13%
+            ╱████◣  1.5Bcs ◥█████████████◣
+
+
+
+```
 🌸🕊🕊[SHY]🕊🕊🌸
 🕊🚨Help needed🚨🕊
 🕊     TBO Phase 2    🕊
@@ -26,18 +43,3 @@
 🕊 Grab your items! 🕊
 🌸🕊🕊   ☮    🕊🕊🌸
 ``` 
-
-```
-👊🔥KNOCK OUT🔥👊
-🎱B2B Low Tier EBs 🎱
-👊Beginner-friendly👊
-👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
-
-```
-👊🔥KNOCK OUT🔥👊
-💪T1 - T5 Eb Rotations💪
-👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
-```
-➰➰➰➰  |🇬🇧🇺🇸
-                  ╱█◣ BR 13%
-            ╱████◣  1.5Bcs ◥█████████████◣
