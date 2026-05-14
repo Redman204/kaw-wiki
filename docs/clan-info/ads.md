@@ -31,7 +31,7 @@ updating 2026 to KO information
 ``` 
 ```
 👊🔥KNOCK OUT🔥👊
-🎱B2B Low Tier EBs 🎱
+🎱B2B Haunt/BR 🎱
 👊Beginner-friendly👊
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
