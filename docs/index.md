@@ -1,4 +1,4 @@
-# Welcome to the Silent Harmony KaW-Wiki
+# Welcome to the RedMan204 KaW-Wiki
 
 There are quite a few KaW-Wikis and -guides out there. Unfortunately none of them are well maintained and often lack many "modern" features and epic battles.
 I set myself the goal to change that and will collect all the necessary information throughout all the guides, wikis and forums I can find.
