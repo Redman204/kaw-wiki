@@ -6,3 +6,4 @@
 
 
 🕊️👊🔥KNOCK OUT🔥👊🕊️ - Perm members
+🎱👊🔥KNOCK OUT🔥👊🎱 - Old Perm Members
