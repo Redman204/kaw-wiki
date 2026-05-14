@@ -40,34 +40,3 @@
 ➰➰➰➰  |🇬🇧🇺🇸
                   ╱█◣ BR 13%
             ╱████◣  1.5Bcs ◥█████████████◣
-
-
-'''
-```
-🌸🕊🕊[SHY]🕊🕊🌸
-🕊🚨Help needed🚨🕊
-🕊     TBO Phase 2    🕊
-🌸🕊🕊    ☮   🕊🕊🌸
-```
-
-```
-🌸🕊🕊 [SHY] 🕊🕊🌸  
-🕊     🔓Unlocking      🕊
-🕊   The Frozen City   🕊
-🌸Looking for perms🌸
-```
-
-```
-🌸🕊🕊[SHY]🕊🕊🌸
-🕊️   B2B Haunt/BR   🕊
-🕊Beginner-friendly🕊
-🌸🕊🕊   ☮    🕊🕊🌸
-```
-
-
-```
-🌸🕊🕊[SHY]🕊🕊🌸
-🕊️   Figure of Death   🕊
-🕊 Grab your items! 🕊
-🌸🕊🕊   ☮    🕊🕊🌸
-``` 
