@@ -28,10 +28,10 @@
 ``` 
 
 ```
-🌸🕊🕊[SHY] 🕊🕊🌸
-🕊B2B Low Tier EBs 🕊
-🕊Beginner-friendly🕊
-🌸🕊🕊    ☮    🕊🕊🌸
+👊🔥KNOCK OUT🔥👊
+🎱B2B Low Tier EBs 🎱
+👊Beginner-friendly👊
+👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
 
 
