@@ -12,12 +12,13 @@
 🔥Warchiefs: RedMan204❣️ 
 🔥Admins:
  
+```
 💢👊🏼ʂųƈƙɛཞ ℘ųŋƈɧ ʄąɱıƖყ👊🏼💢
 ⭐ʂųƈƙɛཞ ℘ųŋƈɧ 20bcs
 ⭐P̷u̷n̷c̷h̷ O̷u̷t̷ closed 
 
 ⭐ƙŋơƈƙ ơųɬ - Beginner Clan| Small ebs
-
+```
 
   💫RULES💫
 🥊Read Clan Announcement💪
