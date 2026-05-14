@@ -33,14 +33,6 @@
 👊Beginner-friendly👊
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
-
-
-
-updating 2026 KO 
-
-
-
-
 ```
 👊🔥KNOCK OUT🔥👊
 💪T1 - T5 Eb Rotations💪
