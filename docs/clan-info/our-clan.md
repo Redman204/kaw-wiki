@@ -1,23 +1,58 @@
-# Silent Harmony (Silent Academy)
+#
+💥╭╮╭╮╱               ╭╮
+💥┃┣╯╋━┳┳━┳━┫┣╮
+💥┃┣╮┫┃┃┃┃┃━┫━┫
+💥╰╯╰┻┻━┻━┻━┻┻╯
+💥╭━╮╱╭╮
+💥┃┃┣┳┫┣╮
+💥┃┃┃┃┃┣╯👊 KO 👊
+💥╰━┻━┻╯🏆Est. 2013🏆
 
-We are a peaceful sanctuary in a noisy world – a clan with no interest in PvP or wars.
-Our foundation is community, harmony, and respect.
+🔥WARLORD: Crazy-Cooter🔥
+🔥Warchiefs: RedMan204❣️ 
+ 
+💢👊🏼ʂųƈƙɛཞ ℘ųŋƈɧ ʄąɱıƖყ👊🏼💢
+⭐ʂųƈƙɛཞ ℘ųŋƈɧ 20bcs
+⭐P̷u̷n̷c̷h̷ O̷u̷t̷ 
+⭐ƙŋơƈƙ ơųɬ 
 
-✨ What we offer ✨  
-✅ No minimum CS – all are welcome  
-✅ Epic Battles whenever requested  
-✅ A supportive, drama-free environment  
-✅ A home for both beginners and veterans  
-✅ Focus on kindness, patience, and growth
 
-Strength means nothing here – it is your mindset that defines you.
-If you seek a calm and respectful home, where players support one another and peace is the highest value, you belong in Silent Harmony. 🌸
+  💫RULES💫
+🥊Read Clan Announcement💪
+🥊Neutral clan!🏳
+🥊Min 100 actions per day😎
+🥊Stay active as much rl allows😊
+🥊Premium items is Sealers Call🤙🏽
+🥊EB requests-ask in Clan chat👊🏽
+🥊CLAN AD👇send 4+a day👀
 
-──────── ⋆⋅☆⋅⋆ ────────
 
-🌱 “Grow in silence, shine in harmony.” 🌱
+👊🔥KNOCK OUT🔥👊
+💪T1 - T5 Eb Rotations💪
+👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
-──────── ⋆⋅☆⋅⋆ ────────
+
+Current EB Rotation♻️  
+💢Warbeasts 
+💢Depraved
+💢Haunting
+*
+💢Battle Royale 
+💢Destroyer 
+💢No Man's Land
+
+🛡EB ITEMS🛡
+DPR-sleeping potion
+H-seal of deflection
+BTR-exilir of rage
+DST-exilir of rage/elven shield
+COTD-angels of light/seal of divinity/holy wrath
+NML-runes of detection
+NG-elven shield
+
+➰➰➰➰  |🇬🇧🇺🇸
+                  ╱█◣ BR 13%
+            ╱████◣  1.5Bcs ◥█████████████◣
 
 
 ## Looking for ads/titles?
