@@ -32,4 +32,9 @@
 🕊B2B Low Tier EBs 🕊
 🕊Beginner-friendly🕊
 🌸🕊🕊    ☮    🕊🕊🌸
+
+
+
+
+updating 2026 KO 
 ```
