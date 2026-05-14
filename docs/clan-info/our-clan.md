@@ -12,7 +12,7 @@
 ```
 🔥WARLORD: Crazy-Cooter🔥
 🔥Warchiefs: RedMan204❣️ 
-🔥Admins:
+🔥Admins: Desire🫥
 ```
 ```
 💢👊🏼ʂųƈƙɛཞ ℘ųŋƈɧ ʄąɱıƖყ👊🏼💢
