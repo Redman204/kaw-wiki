@@ -44,7 +44,3 @@ updating 2026 to KO information
                   ╱█◣ BR 13%
             ╱████◣  1.5Bcs ◥█████████████◣
 
-
-## Looking for ads/titles?
-
-Look no further! Find it here: [Ads](ads.md) or [Titles](titles.md)
