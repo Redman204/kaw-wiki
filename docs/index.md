@@ -17,4 +17,4 @@ You can also find me in KaW: RedMan204
 ## Credits
 
 * <a href="https://spartadivisions.weebly.com" target="_blank" rel="noopener noreferrer">spartadivisions.weebly.com</a> - Used as main source for most Epic Battle guides until LotL (inactive clan in 2025 -> Sparta Elite Division)
-* <a href="https://github.com/Redman204" target="_blank" rel="noopener noreferrer">GitHub user</a> and clan admin **Redman204** - responsible for the Quick Start Guide
+* <a href="https://github.com/Redman204" target="_blank" rel="noopener noreferrer">GitHub user</a>  **Redman204** - responsible for the Quick Start Guide
