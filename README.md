@@ -63,6 +63,15 @@ All Epic Battles are organized by **Tier** and **Level**:
 - [Figure of Death](docs/epic-battles/tier5/figure-of-death.md)
 - [Haunting: The Escape](docs/epic-battles/tier5/haunting-the-escape.md)
 
+## Tier 6 (Hawthorn The Wretched)
+- [Talons of Carnage](epic-battles/tier6/talons-of-carnage.md)
+- [New Growth](epic-battles/tier6/new-growth.md)
+- [Scionic Storm](epic-battles/tier6/scionic-storm.md)
+- [Sporavek's Revenge](epic-battles/tier6/sporaveks-revenge.md)
+
+ 
+## Tier 7 Epic Battles: Moutos the Malevolent
+-
 ---
 
 ## Contributing
