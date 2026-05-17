@@ -19,7 +19,7 @@ There are many KaW wikis and guides online, but most are outdated, incomplete, o
 
 1. **Clone the repository:**
    ```bash
-   git clone https://github.com/shy-peacekeeper-shy/kaw-wiki.git
+   git clone https://github.com/Redman204/kaw-wiki
    ```
 2. Open the Markdown files in your favorite editor or Markdown viewer.  
 3. Optionally, use [MkDocs Material](https://squidfunk.github.io/mkdocs-material/) to view the wiki as a website locally.
