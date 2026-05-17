@@ -39,6 +39,6 @@
 - [Scionic Storm](epic-battles/tier6/scionic-storm.md)
 - [Sporavek's Revenge](epic-battles/tier6/sporaveks-revenge.md)
 
-updating in progress 
+ 
 ## Tier 7 Epic Battles: Moutos the Malevolent
 -
