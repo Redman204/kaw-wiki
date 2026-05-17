@@ -2,7 +2,7 @@ A clan for NEW players
 Start your KAW journey
 
 
- ╔╗╔╗╦╗╔╗╔╗╦╔╗
+  ╔╗╔╗╦╗╔╗╔╗╦╔╗
  ║╦╠╝║║╠╝╚╗║╚╗
  ╚╝╚╝╩╚╚╝╚╝╩╚╝
 
