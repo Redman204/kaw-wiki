@@ -1,6 +1,6 @@
 # Quick Start Guide - get to Fatesands quickly
 
-# Have To Update This to game updates 
+Have to update this to game updates 
 
 Hi there, this is a collection of information gathered from Kaw vets, aimed at giving you the best chance at growing fast. 
 To grow quickly, you need to focus on unlocking Fatesands lands, that's when you actually start growth. This guide will focus on methods to growing and reaching Fatesands fast, as well as giving you the best build to use for initial growth that you can use for ANY future build style. 
