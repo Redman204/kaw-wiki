@@ -2,9 +2,9 @@ A clan for NEW players
 Start your KAW journey
 
 
-  ╔╗╔╗╦╗╔╗╔╗╦╔╗
-  ║╦╠╝║║╠╝╚╗║╚╗
-  ╚╝╚╝╩╚╚╝╚╝╩╚╝
+💪  ╔╗╔╗╦╗╔╗╔╗╦╔╗
+💪  ║╦╠╝║║╠╝╚╗║╚╗
+💪  ╚╝╚╝╩╚╚╝╚╝╩╚╝
 
 🔹genesis: noun
      gen·e·sis ˈje-nə-səs 
