@@ -19,7 +19,7 @@
 ⭐ʂųƈƙɛཞ ℘ųŋƈɧ 20bcs
 ⭐P̷u̷n̷c̷h̷ O̷u̷t̷ closed ( punch out )
 
-⭐ƙŋơƈƙ ơųɬ - event | premium eb clan
+⭐ƙŋơƈƙ ơųɬ - event ebs / premium
 ```
 ```
   💫RULES💫
