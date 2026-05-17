@@ -2,21 +2,21 @@
 
 
 ```
-🌸🕊🕊[SHY]🕊🕊🌸
+🌸🕊🕊[Name]🕊🕊🌸
 🕊🚨Help needed🚨🕊
 🕊     TBO Phase 2    🕊
 🌸🕊🕊    ☮   🕊🕊🌸
 ```
 
 ```
-🌸🕊🕊 [SHY] 🕊🕊🌸  
+🌸🕊🕊 [Name] 🕊🕊🌸  
 🕊     🔓Unlocking      🕊
 🕊   The Frozen City   🕊
 🌸Looking for perms🌸
 ```
 
 ```
-🌸🕊🕊[SHY]🕊🕊🌸
+🌸🕊🕊[Name]🕊🕊🌸
 🕊️   B2B Haunt/BR   🕊
 🕊Beginner-friendly🕊
 🌸🕊🕊   ☮    🕊🕊🌸
@@ -24,20 +24,20 @@
 
 
 ```
-🌸🕊🕊[SHY]🕊🕊🌸
+🌸🕊🕊[Name]🕊🕊🌸
 🕊️   Figure of Death   🕊
 🕊 Grab your items! 🕊
 🌸🕊🕊   ☮    🕊🕊🌸
 ``` 
 ```
-👊🔥KNOCK OUT🔥👊
+     👊Name👊
 🎱B2B Haunt/BR 🎱
 👊Beginner-friendly👊
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
 ```
 ```
-👊🔥KNOCK OUT🔥👊
+       👊Name👊
 💪T1 - T5 Eb Rotations💪
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
 
