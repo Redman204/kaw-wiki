@@ -63,7 +63,7 @@ NG-elven shield
 ```
 
 ```
-🕊️👊🔥KNOCK OUT🔥👊🕊️ - New 2026 Perm members
+🕊️👊🔥KNOCK OUT🔥👊🕊️ - New  Perm members
 ```
 ```
 🎱👊🔥KNOCK OUT🔥👊🎱 - Old Perm Members 
