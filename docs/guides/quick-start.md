@@ -77,6 +77,10 @@ At this point, you should be working towards a long term build goal, and can wor
 You have most of the tools you'll need to continue growing into your late game stages. 
 Play how you like and enjoy what you do, thanks for reading🍻
 
+Cost Of Lands And Buildings
+https://forum.kingdomsatwar.com/threads/looking-for-all-new-building-names-costs-static-stats-❰-buildings-lands-❱.176572/
+
+
 ### Credits
 
 This Quick Start Guide was generously contributed by <a href="https://github.com/Redman204" target="_blank" rel="noopener noreferrer">RedMan204</a> In Game Name **Redman204**.
