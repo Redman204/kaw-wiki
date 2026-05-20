@@ -29,10 +29,11 @@ Name
 🌸🕊🕊   ☮    🕊🕊🌸
 ``` 
 ```
-     👊Name👊
-🎱B2B Haunt/BR 🎱
+     👊Genesis👊
+🎱B2B Depraved,Hunt,Br 🎱
 👊Beginner-friendly👊
 👊🫂ʟᴏᴏᴋɪɴɢ ꜰᴏʀ ᴘᴇʀᴍꜱ🫂👊
+Depraved,Hunt,Br
 
 ```
 ```
