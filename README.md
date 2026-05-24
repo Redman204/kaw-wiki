@@ -69,12 +69,7 @@ All Epic Battles are organized by **Tier** and **Level**:
 - [Scionic Storm](epic-battles/tier6/scionic-storm.md)
 - [Sporavek's Revenge](epic-battles/tier6/sporaveks-revenge.md)
 
-## Tier 7 (Moutos the Malevolent)
-- [The Barren Orchard](epic-battles/tier7/the-barren-orchard.md)
-- [Terrain Travails](epic-battles/tier7/terrain-travails.md)
-- [Crossing the Threshold](epic-battles/tier7/crossing-the-threshold.md)
-- [The Cave of Riches](epic-battles/tier7/the-cave-of-riches.md)
----
+
 
 ## Contributing
 
