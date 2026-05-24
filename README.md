@@ -69,6 +69,7 @@ All Epic Battles are organized by **Tier** and **Level**:
 - [Scionic Storm](epic-battles/tier6/scionic-storm.md)
 - [Sporavek's Revenge](epic-battles/tier6/sporaveks-revenge.md)
 
+## Tier 7 (Moutos the Malevolent)
 
 ---
 
