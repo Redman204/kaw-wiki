@@ -41,6 +41,3 @@
 
  
 ## Tier 7 Epic Battles: Moutos the Malevolent
-- COR Ph 4 B2: EQ Stalwart Helmet
-
-TGL Ph 1 B1: Angels of Light Ph 2 B1: Summon Darkness Ph 3 B3: EQ Vermeil Breastplate Ph 4 B1: Holy Wrath Ph 4 B2: Seal of Divinity
