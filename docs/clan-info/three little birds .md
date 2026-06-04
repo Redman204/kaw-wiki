@@ -39,16 +39,7 @@ Ads:
 Founder: Africandy
 Co-Founder: RedMan204
 Founded: 28/04/2024
-General In Command: K9
-LB Rank: #50
+High Rank:47
 Sub Clans - 
 Three Little Owls - Closed 
 N/A - Event | Blitz | Premium Ebs
-
-
-
-
-
-Redman204 was here ❤
-the good old days 😪
-#47
