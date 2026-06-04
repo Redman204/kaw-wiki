@@ -19,12 +19,11 @@
 🐦CLAN AD👇send 4+a day👀
 
 
+Ads:
+
  ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂
       🐦🦅🕊  1B CS  🕊🦅🐦
    ✨Recruting Spartans✨
-
-
-🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
 
 
 ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂
@@ -32,6 +31,8 @@
    ✨Recruting Spartans✨
 
 
+
+🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
 
 
 
