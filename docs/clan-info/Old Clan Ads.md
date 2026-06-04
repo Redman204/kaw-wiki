@@ -54,3 +54,10 @@ Depraved,Hunt,Br
 ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂ 🐦🦅🕊 1B CS 🕊🦅🐦 ✨Recruting Spartans✨
 
 ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂ 𓅰 𓅬 𓅭1B CS 𓅮 𓅯🐦 ✨Recruting Spartans✨
+
+```
+```
+
+🕊️👊🔥KNOCK OUT🔥👊🕊️ - New  Perm members
+🎱👊🔥KNOCK OUT🔥👊🎱 - Old Perm Members 
+💐👊🔥KNOCK OUT🔥👊💐 - Visitors/EB Hunters
