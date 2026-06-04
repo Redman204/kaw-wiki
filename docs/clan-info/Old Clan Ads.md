@@ -5,23 +5,18 @@ Name
 🕊🚨Help needed🚨🕊
 🕊     TBO Phase 2    🕊
 🌸🕊🕊    ☮   🕊🕊🌸
-```
 
-```
 🌸🕊🕊 [Name] 🕊🕊🌸  
 🕊     🔓Unlocking      🕊
 🕊   The Frozen City   🕊
 🌸Looking for perms🌸
 ```
-
 ```
 🌸🕊🕊[Name]🕊🕊🌸
 🕊️   B2B Haunt/BR   🕊
 🕊Beginner-friendly🕊
 🌸🕊🕊   ☮    🕊🕊🌸
 ```
-
-
 ```
 🌸🕊🕊[Name]🕊🕊🌸
 🕊️   Figure of Death   🕊
