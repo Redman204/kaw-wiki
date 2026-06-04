@@ -10,14 +10,12 @@ Name
 🕊     🔓Unlocking      🕊
 🕊   The Frozen City   🕊
 🌸Looking for perms🌸
-```
-```
+
 🌸🕊🕊[Name]🕊🕊🌸
 🕊️   B2B Haunt/BR   🕊
 🕊Beginner-friendly🕊
 🌸🕊🕊   ☮    🕊🕊🌸
-```
-```
+
 🌸🕊🕊[Name]🕊🕊🌸
 🕊️   Figure of Death   🕊
 🕊 Grab your items! 🕊
