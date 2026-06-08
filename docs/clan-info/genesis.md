@@ -16,6 +16,7 @@ This is your KAW beginning.
 _________ 💫 _________
 
 🔹PERM MEMBERS🔹
+ 🌀GENESlS 🌀
 
 🔹We'll do the admin stuff so
      you can do the Epic Battles!
