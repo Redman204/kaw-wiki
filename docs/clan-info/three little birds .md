@@ -37,11 +37,16 @@ Ads:
 
 
 Founder: Africandy
+
 Co-Founder: RedMan204
+
 Founded: 28/04/2024
+
 High Rank:47
+
 Sub Clans - 
-Three Little Owls - Closed 
+Three Little Owls - Closed
+
 N/A - Event | Blitz | Premium Ebs
 
 
