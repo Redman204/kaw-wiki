@@ -3,8 +3,11 @@
 ``
 NEW PLAYER/BUILD BASICS
 🏗Open all 25 Lowlands which will unlock silver bars.
+
 🌐Next open 50 lands in total with minimum level 1 builds which opens up the blitz bonus. Since abyss lands is next gold open highlands up to hoarfrost until abyss feature is available 
+
 🌎Next you want to open all 25 Abyss lands which unlocks gold bars
+
 💰Sell all silver bars to get more lands & use the crestplates for building & upgrades from there.
 🌀Next, beat the side legends & get all 300 points on the epic battle blitz rounds.
 🤪750 legends = free crestplates silver bars and even gold bars
