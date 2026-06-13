@@ -56,8 +56,8 @@ Active Check Post
 
 
         ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂
-🐦🦅🕊 1 Week Active Check 🕊🦅🐦 (Date)
-✨Just Reaply When Active Spartans✨
+    🐦🦅🕊 1 Week Active Check 🕊🦅🐦 (Date)
+    ✨Just Reaply When Active Spartans✨
        🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
 
 
