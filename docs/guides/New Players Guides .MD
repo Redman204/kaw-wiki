@@ -1,7 +1,7 @@
 ``
 2026 NEW PLAYER/BUILD BASICS
 ``
-
+NEW PLAYER/BUILD BASICS
 🏗Open all 25 Lowlands which will unlock silver bars.
 🌐Next open 50 lands in total with minimum level 1 builds which opens up the blitz bonus. Since abyss lands is next gold open highlands up to hoarfrost until abyss feature is available 
 🌎Next you want to open all 25 Abyss lands which unlocks gold bars
