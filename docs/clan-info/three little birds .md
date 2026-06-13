@@ -50,8 +50,8 @@ Active Check Post
 
 
       ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂ 
-🐦🦅🕊 48 Hr Active Check 🕊🦅🐦 (Date)
-✨Just Reaply When Active Spartans✨
+    🐦🦅🕊 48 Hr Active Check 🕊🦅🐦 (Date)
+    ✨Just Reaply When Active Spartans✨
        🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
 
 
