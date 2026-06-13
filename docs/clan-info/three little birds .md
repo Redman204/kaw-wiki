@@ -43,3 +43,21 @@ High Rank:47
 Sub Clans - 
 Three Little Owls - Closed 
 N/A - Event | Blitz | Premium Ebs
+
+
+
+Active Check Post
+
+
+      ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂ 
+🐦🦅🕊 48 Hr Active Check 🕊🦅🐦 (Date)
+✨Just Reaply When Active Spartans✨
+       🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
+
+
+        ꧁ᡶꫝꪹꫀꫀ ꪶỉᡶᡶꪶꫀ ꪉỉ̉ꪹᦔక꧂
+🐦🦅🕊 1 Week Active Check 🕊🦅🐦 (Date)
+✨Just Reaply When Active Spartans✨
+       🪖🏗 𓅰 𓅬 𓅭 𓅮 𓅯 🏗🪖
+
+
